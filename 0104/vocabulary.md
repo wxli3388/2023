@@ -11,7 +11,7 @@
 
 `n`
 * It took a lot of willpower to stay calm.
-* I don't have the willpoer to diet.
+* I don't have the willpower to diet.
 
 # sparingly  /ˈsper.ɪŋ.li/
 `adv`
