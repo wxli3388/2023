@@ -17,7 +17,6 @@ You can feel the real lives rather than watch them on the screen.
 ---
 
 **Q. Do you think humans will eventually move on to other planets? Why or why not?**
-A. 
 
 I don't think so. There have been billions of years since the earth's birth.
 But until now, we haven't seen any other planets have lives. 
